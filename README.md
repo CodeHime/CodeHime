@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CodeHime
 - 👀 I’m a Data Enthusiast
-- 🌱 I’m currently pursuing my Masters at ASU
+- 🌱 I’m currently pursuing my Masters at ASU.. I like to go beyond expectations and beat my deadlines. 
 - 💞️ I’m looking to collaborate on interesting projects.
 - 📫 How to reach me: kjdoshi1@asu.edu
 
